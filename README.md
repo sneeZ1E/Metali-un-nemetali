@@ -1,2 +1,2 @@
-# Metali-un-nemetali
+# Periodiska-tabula
 Skolas darbs
